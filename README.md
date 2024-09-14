@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @naheeeeyy
+- 🌱 I’m currently learning COMPUTER SCIENCE
